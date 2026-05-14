@@ -1,4 +1,4 @@
-
+Enhance your Namecheap VPN experience with elite Namecheap VPN Module | PPTP-support + ad-blocker, the #1 module. Includes PPTP-support and ad-blocker for a safer and more private
 
 
 
